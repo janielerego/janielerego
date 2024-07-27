@@ -1,4 +1,4 @@
-## Oiii eu sou a Janiele Rêgo, estudante de Análise e Desenvolvimento de Sistemas!
+## Oiii eu sou a Janiele Rêgo, desenvolvedora de sistemas!
 
 ##
 
